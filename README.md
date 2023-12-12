@@ -12,4 +12,4 @@ don't copy or inspo : our skins (obviously) , our names (this happens sm!! like 
 
 have taken the names of our alters so please refrain from having the same name even if ppl can have the same names.)
 
-more in our system rentry , in the long byi. thanks for reading ^_^
+more in our system rentry , in the long byi. thanks for reading ^_^ (btw ilysm my pretty gf ur so cool)
